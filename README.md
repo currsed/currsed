@@ -5,4 +5,6 @@
 
 <sup>dni  -13  proshippers</sub>
 
+<sup>dnc nor take inspo.</sub>
+
 > <sup>choso&ulquiorra #1 fan others r fake !</sub>
