@@ -3,7 +3,7 @@
 ![me lol](https://media.tenor.com/jt2H_bzZh5sAAAAC/choso-choso-jjk.gif)
 > <sup>17  mx/it</sub>
 
-<sup>dni  -13  proshippers</sub>
+<sup>dni ;;  -13 — proshippers</sub>
 
 <sup>dnc nor take inspo.</sub>
 
