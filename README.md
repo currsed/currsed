@@ -5,6 +5,8 @@
 
 <sup>dni ;;  -13 — proshippers</sub>
 
+<sup>feel free to c + h idm</sub>
+
 <sup>dnc nor take inspo.</sub>
 
 > <sup>choso—ulquiorra—eustass kid #1 fan others r fake !</sub>
