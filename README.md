@@ -11,4 +11,4 @@
 
 > <sup>choso—ulquiorra—eustass kid #1 fan others r fake !</sub>
 
-<sup>idm dbles of my irls, js dont b pissy or possessive abt it</sub>
+<sup>idm dbles of my irls as soon you don't try to distance me from the characters. thanks</sub>
