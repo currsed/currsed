@@ -5,7 +5,7 @@
 
 <sup>dni ;;  -13 — proshippers</sub>
 
-<sup>feel free to c + h idm</sub>
+<sup>feel free to c + h idm.  crowns are prefered in **whispers**</sub>
 
 <sup>dnc nor take inspo.</sub>
 
