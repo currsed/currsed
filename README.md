@@ -7,6 +7,10 @@
 
 <sup>feel free to c + h idm.  crowns are prefered in **whispers**</sub>
 
+> <sup>if i have you added, i might not approach you if you're with other people</sub>
+
+![me lol](https://media1.tenor.com/m/Vbq3K5r4oy0AAAAd/choso-crying.gif)
+
 <sup>dnc nor take inspo.</sub>
 
 > <sup>choso—ulquiorra—eustass kid #1 fan others r fake !</sub>
