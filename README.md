@@ -9,6 +9,8 @@
 
 > <sup>if i have you added, i might not approach you if you're with other people</sub>
 
+> <sup>+ i'm not really sociative so i won't talk if YOU approach me
+
 ![me lol](https://media1.tenor.com/m/Vbq3K5r4oy0AAAAd/choso-crying.gif)
 
 <sup>dnc nor take inspo.</sub>
